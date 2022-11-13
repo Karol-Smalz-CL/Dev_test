@@ -1,0 +1,1 @@
+# Co myślicie o takiej bazie wiedzy?
